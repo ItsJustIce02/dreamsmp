@@ -8,7 +8,7 @@ This is only for fun
 # Current daily streak **2** : Total trends: **4**
   
 ## Today: A total of **3** trends.
-> #cats4ranboo
+> #cats4ranboo  
 > MCYT Stans are posting pics of their cats to twitter in support of ranboo.
 
 > #SAPNAP, callahan  
