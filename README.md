@@ -4,9 +4,11 @@ Dream and associates trend a lot on twitter. Here is the current streak as of 7/
 No ill intentions towards dream or anyone who is a fan of dream. (I am excluding stans.)  
 This is only for fun
 
+[View accomplishments](https://dream.justodaya.ga/history)
+
 # There has been 5 trends within 2 days. 
 # Current daily streak **2** : Total trends: **5**
-  
+
 ## Today: A total of **3** trends.  
 > "Sapnap"  
 > Stans enjoy the appearance of Sapnap on GeorgeNotFound's stream/
