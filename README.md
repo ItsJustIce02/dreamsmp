@@ -7,12 +7,14 @@ This is only for fun
 [View accomplishments](https://dream.justodaya.ga/history)
 
 # There has been 7 trends within 3 days. 
-# Current daily streak **3** : Total trends: **7**  
+# Current daily streak **3** : Total trends: **8**  
 
-## Today: A total of **2** trends.
+## Today: A total of **3** trends.
+> #lgbtqcorpsetwt  
+> Fans of Corpse who are apart of LGBTQ+ posts selfies of themselves.
+
 > "Hypixel"  
 > Dream is playing on the Hypixel network server.
-
 
 > "Punz"  
 > Creator "Punz" replied to a live announcement by GeorgeNotFound.
