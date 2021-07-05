@@ -8,7 +8,7 @@ This is only for fun
 
 # There has been 5 trends within 3 days. 
 # Current daily streak **2** : Total trends: **5**  
-**Streak currently 2. This may change today.
+**Streak currently 2. This may change today.**
 
 ## Today: A total of **0** trends.
 
