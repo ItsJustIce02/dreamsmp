@@ -6,10 +6,14 @@ This is only for fun
 
 [View accomplishments](https://dream.justodaya.ga/history)
 
-# There has been 6 trends within 3 days. 
-# Current daily streak **3** : Total trends: **6**  
+# There has been 7 trends within 3 days. 
+# Current daily streak **3** : Total trends: **7**  
 
-## Today: A total of **1** trends.
+## Today: A total of **2** trends.
+> "Hypixel"  
+> Dream is playing on the Hypixel network server.
+
+
 > "Punz"  
 > Creator "Punz" replied to a live announcement by GeorgeNotFound.
 
