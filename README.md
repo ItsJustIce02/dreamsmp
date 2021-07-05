@@ -6,10 +6,12 @@ This is only for fun
 
 [View accomplishments](https://dream.justodaya.ga/history)
 
-# There has been 5 trends within 2 days. 
+# There has been 5 trends within 3 days. 
 # Current daily streak **2** : Total trends: **5**
 
-## Today: A total of **3** trends.  
+## Today: A total of **0** trends.
+
+### 7/5/2021: A total of **3** trends.  
 > "Sapnap"  
 > Stans enjoy the appearance of Sapnap on GeorgeNotFound's stream/
 
