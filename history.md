@@ -4,7 +4,7 @@
 # Days without trends: **0**
 
 ## 7/5/2021 "Not even an hour!"  
-Get something mcyt trending within an hour.
+Get something mcyt trending within an hour of a new day.
 
 ## 7/4/2021 "3 in 1"  
 The stans has trended 3 things in one day.
