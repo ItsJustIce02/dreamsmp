@@ -4,14 +4,17 @@ Dream and associates trend a lot on twitter. Here is the current streak as of 7/
 No ill intentions towards dream or anyone who is a fan of dream. (I am excluding stans.)  
 This is only for fun
 
-# There has been 4 trends within 2 days. 
-# Current daily streak **2** : Total trends: **4**
+# There has been 5 trends within 2 days. 
+# Current daily streak **2** : Total trends: **5**
   
-## Today: A total of **3** trends.
+## Today: A total of **3** trends.  
+> "Sapnap"  
+> Stans enjoy the appearance of Sapnap on GeorgeNotFound's stream/
+
 > #cats4ranboo  
 > MCYT Stans are posting pics of their cats to twitter in support of ranboo.
 
-> #SAPNAP, callahan  
+> #SAPNAP, "callahan"  
 > A couple of MCYT creators are playing minigames on Minecraft.
 
 ### 7/4/21: A total of **1** trend.
