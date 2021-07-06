@@ -3,6 +3,9 @@
 # Trends in one day: **3**  
 # Days without trends: **0**
 
+## 7/6/2021 "Quick double digits!"  
+Get up to 10 mcyt trends in less than a week.
+
 ## 7/5/2021 "Not even an hour!"  
 Get something mcyt trending within an hour of a new day.
 
