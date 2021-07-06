@@ -6,10 +6,14 @@ This is only for fun
 
 [View accomplishments](https://dream.justodaya.ga/history)
 
-# There has been 7 trends within 3 days. 
-# Current daily streak **3** : Total trends: **8**  
+# There has been 8 trends within 4 days. 
+# Current daily streak **4* : Total trends: **8**  
 
-## Today: A total of **3** trends.
+## Today: A total of **1** trend.  
+> "GEORGES"  
+> George's nose is bleeding. 
+
+### 7/5/2021: A total of **3** trends.
 > #lgbtqcorpsetwt  
 > Fans of Corpse who are apart of LGBTQ+ posts selfies of themselves.
 
@@ -19,7 +23,7 @@ This is only for fun
 > "Punz"  
 > Creator "Punz" replied to a live announcement by GeorgeNotFound.
 
-### 7/5/2021: A total of **3** trends.  
+### 7/4/2021: A total of **3** trends.  
 > "Sapnap"  
 > Stans enjoy the appearance of Sapnap on GeorgeNotFound's stream/
 
@@ -29,7 +33,7 @@ This is only for fun
 > #SAPNAP, "callahan"  
 > A couple of MCYT creators are playing minigames on Minecraft.
 
-### 7/4/21: A total of **1** trend.
+### 7/3/21: A total of **1** trend.
 > "HALF A YEAR"  
 > Sapnap and Dream have both been living with each other for half a year.
 
