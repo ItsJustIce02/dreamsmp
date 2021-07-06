@@ -6,10 +6,13 @@ This is only for fun
 
 [View accomplishments](https://dream.justodaya.ga/history)
 
-# There has been 10 trends within 4 days. 
-# Current daily streak **4** : Total trends: **9**  
+# There has been 11 trends within 4 days. 
+# Current daily streak **4** : Total trends: **11**  
 
-## Today: A total of **3** trends.  
+## Today: A total of **4** trends.  
+> "tommy"  
+> Tommyinnit is destroying things he is displeased with on the DSMP.
+
 > "tommys", #FOOLISH
 > **There isn't enough information for this trend.**
 
