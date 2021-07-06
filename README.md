@@ -6,10 +6,13 @@ This is only for fun
 
 [View accomplishments](https://dream.justodaya.ga/history)
 
-# There has been 8 trends within 4 days. 
-# Current daily streak **4* : Total trends: **8**  
+# There has been 9 trends within 4 days. 
+# Current daily streak **4** : Total trends: **9**  
 
-## Today: A total of **1** trend.  
+## Today: A total of **2** trends.  
+> "tommys"
+> **There isn't enough information for this trend.**
+
 > "GEORGES"  
 > George's nose is bleeding. 
 
