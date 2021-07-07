@@ -6,10 +6,17 @@ This is only for fun
 
 [View accomplishments](https://dream.justodaya.ga/history)
 
-# There has been 11 trends within 4 days. 
-# Current daily streak **4** : Total trends: **11**  
+# There has been 13 trends within 4 days. 
+# Current daily streak **4** : Total trends: **13**  
 
-## Today: A total of **4** trends.  
+## Today: A total of **6** trends.  
+> #404twtselfieday  
+> Stans of GeorgeNotFound aree posting selfies and decided to make a trend for it.
+> Editors note: Just make a mcyt selfie day already.  
+
+> "RANBOO SINGING"  
+> Ranboo joined Tubbo's music-writing space and stans heard him singing in the background.
+
 > "tommy"  
 > Tommyinnit is destroying things he is displeased with on the DSMP.
 
