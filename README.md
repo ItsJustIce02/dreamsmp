@@ -11,7 +11,7 @@ This is only for fun
 
 ## Today: A total of **6** trends.  
 > #404twtselfieday  
-> Stans of GeorgeNotFound aree posting selfies and decided to make a trend for it.
+> Stans of GeorgeNotFound aree posting selfies and decided to make a trend for it.  
 > Editors note: Just make a mcyt selfie day already.  
 
 > "RANBOO SINGING"  
