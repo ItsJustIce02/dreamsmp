@@ -9,7 +9,9 @@ This is only for fun
 # There has been 13 trends within 4 days. 
 # Current daily streak **4** : Total trends: **13**  
 
-## Today: A total of **6** trends.  
+## Today: A toltal of **0** trends.
+
+### 7/6/2021: A total of **6** trends.  
 > #404twtselfieday  
 > Stans of GeorgeNotFound aree posting selfies and decided to make a trend for it.  
 > Editors note: Just make a mcyt selfie day already.  
