@@ -6,8 +6,9 @@ This is only for fun
 
 [View accomplishments](https://dream.justodaya.ga/history)
 
-# There has been 13 trends within 4 days. 
-# Current daily streak **4** : Total trends: **13**  
+# There has been 13 trends within 5 days.  
+# Days without trends: **1**
+# Current daily streak **0** : Total trends: **13**  
 
 ## Today: A total of **0** trends.
 
