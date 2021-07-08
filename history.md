@@ -1,7 +1,10 @@
 # Accomplishments  
 
 # Trends in one day: **4**  
-# Days without trends: **0**
+# Days without trends: **1**
+
+## 7/7/2021 "Silence at last."  
+Don't trend anything for a whole day.
 
 ## 7/6/2021 "4 in 1"  
 The stans has trended 4 things in one day.
