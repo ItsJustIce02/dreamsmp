@@ -1,4 +1,7 @@
 Dream and associates trend a lot on twitter. Here is the current streak as of 7/3/2021 at 1:53 AM.  
+
+# This site is soon to be decomissioned.  
+Thanks to anyone who came here to see me prove a point that stans trend a youtuber for breathing.  
   
 ## Warning
 No ill intentions towards dream or anyone who is a fan of dream. (I am excluding stans.)  
