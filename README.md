@@ -11,6 +11,6 @@ No ill intentions towards dream or anyone who is a fan of MCYT
 
 ## Today: A total of **1** trends.
 > ### FOOSH
-> Creator Foosh is participating for the first time in MCC.
+> Creator Foolish is participating for the first time in MCC.
 
 #### (c) ./Odaya 2022
