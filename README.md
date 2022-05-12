@@ -10,8 +10,7 @@ No ill intentions towards dream or anyone who is a fan of MCYT
 # Current daily streak **1** : Total trends: **13**  
 
 ## Today: A total of **1** trends.
-
-### FOOSH
-Creator Foosh is participating for the first time in MCC.
+> ### FOOSH
+> Creator Foosh is participating for the first time in MCC.
 
 #### (c) ./Odaya 2022
