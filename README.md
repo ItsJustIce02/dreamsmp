@@ -1,4 +1,6 @@
-Dream and associates trend a lot on twitter. Here is the current streak as of 5/12/2022 at 3:39 AM EST.  
+Dream and associates trend a lot on twitter. Here is the current streak as of 5/12/2022  
+
+##### Last updated: 5/12/2022 @ 3:44PM est
 
 ## Warning
 No ill intentions towards dream or anyone who is a fan of MCYT  
